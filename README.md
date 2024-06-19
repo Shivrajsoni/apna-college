@@ -1,3 +1,3 @@
 # apna-college
 
-author-Shivraj Soni
+author-Shivraj Soni is greatest
